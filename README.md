@@ -1,4 +1,5 @@
-# 科研写作技巧笔记
+# [科研写作技巧笔记](https://mp.weixin.qq.com/s/ES091s4kDqzbtgZtwmuI3w)
+
 
 ## 简介
 
